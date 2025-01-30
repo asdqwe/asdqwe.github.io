@@ -1,2 +1,0 @@
-# asdqwe.github.io
-Pages
